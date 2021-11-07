@@ -2,32 +2,32 @@
 
 ## Ingredients 
 
-. 4 tbsp. butter
-. 1/4 c all purpose flour
-. 1 yellow onion
-. 2 celery stalks
-. 5 large mushrooms
-. 2 cloves garlic, minced
-. 1 large andouille sausage, cut up
-. 1 tbsp cajun seasoning (penzys)
-. pepper / salt
-. 1 can diced tomatos
-. 1 box chicken broth (32 oz)
-. 10 peeled shrimp
-. 2 cups white rice
+1. 4 tbsp. butter
+2. 1/4 c all purpose flour
+3. 1 yellow onion
+4. 2 celery stalks
+5. 5 large mushrooms
+6. 2 cloves garlic, minced
+7. 1 large andouille sausage, cut up
+8. 1 tbsp cajun seasoning (penzys)
+9. pepper / salt
+10. 1 can diced tomatos
+11. 1 box chicken broth (32 oz)
+12. 10 peeled shrimp
+13. 2 cups white rice
 
 ## Steps
 
-. Setup rice in rice cooker
-. Cut up veggies and garlic
-. Saute veggies, 5 min, non-stick, remove
-. Make roux -- idk, enamaled iron
-. add broth and tomatos
-. add veggies, seasoning
-. saute chicken
-. add chicken, andouille
-. add shrimp
-. serve, rice then soup in bowl.
+1. Setup rice in rice cooker
+2. Cut up veggies and garlic
+3. Saute veggies, 5 min, non-stick, remove
+4. Make roux -- idk, enamaled iron
+5. add broth and tomatos
+6. add veggies, seasoning
+7. saute chicken
+8. add chicken, andouille
+9. add shrimp
+10. serve, rice then soup in bowl.
 
 ## Notes
 
